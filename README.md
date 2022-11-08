@@ -13,4 +13,4 @@ Hi-hi, I'm qafitmaksum, since anonymity is important in crypto, I hide my real n
 * https://aptoslabs.com/
 * https://massa.net/
 * https://forta.org/
-donaldaitchison@yahoo.com
+
